@@ -1,2 +1,4 @@
 # Tugas Project Citra Digital
-This is for study purposes :)
+Zalfa Izdihar
+
+Disclamer : This is for study purposes :)
